@@ -1,4 +1,4 @@
-# 
+# advanced GlassWire for PC | GlassWire for Windows Module | kill-switch + split-tunneling offers the most advanced GlassWire for PC | GlassWire for Windows module, with kill-switch
 
 
 
